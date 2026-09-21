@@ -39,6 +39,6 @@ Origem do projeto · manifesto · o que é a iniciativa · sete dimensões · os
 
 ## Contato
 
-- **Instagram:** [@ciclosegura](https://www.instagram.com/ciclosegura)
+- **Instagram:** [@cicloseguraoficial](https://www.instagram.com/cicloseguraoficial)
 - **E-mail:** dricardoso@usp.br
 - **NEUROPSI.io:** https://neuropsi.io
